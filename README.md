@@ -18,7 +18,7 @@ Kajet szybko się zapełnia, Artyska podobno zbiera równolegle dowody, dokument
 * Kajet Zemsty - rejestr osób, które zdradziły solidarność w walce przeciwko przemocy Patriarchatu
 * Tarocistka - przyjaciółka Artystki uwikłana w konflikt z lokalnym polskim awatarem Patriarchatu; skłonna do grubych przeinaczeń, ale Artystce to nie przeszkadza
 * Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego weszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
-* Perseusz - mityczny bohater, który odciął głowę meduzie; w oczach Artystki lokalny przedstawiciel Patriarchatu, z którym w konfilkt weszła jej przyjaciółka Tarocistka
+* **Perseusz** - mityczny bohater, który odciął głowę meduzie; w oczach Artystki lokalny przedstawiciel Patriarchatu, z którym w konfilkt weszła jej przyjaciółka Tarocistka
 
 ## Kajet Zemsty
 
@@ -40,7 +40,7 @@ Kto | Kiedy | Za co
 @tosia.tylki alias @natka.pska | 2025-06-15 | poleciła ludziom przeprosiny Prostracji i obejrzenie Perseusza
 @tu_okuniewska | 2025-06-16 | bo ktoś jej napisał, że to stalkerka
 @zamilska | 2025-06-16 | bo to koleżanka @tu_okuniewska i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
-@domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem, którego nie było
+@domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem od Perseusza, którego nie było
 
 ## Cytaty ze storiesów
 
