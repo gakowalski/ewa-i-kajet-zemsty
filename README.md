@@ -12,13 +12,18 @@ Kajet szybko się zapełnia, Artyska podobno zbiera równolegle dowody, dokument
 * Artystka - dramatycznie doświadczona przez życie prorokini anty-przemocy charakteryzująca się zdolnościami plastycznymi i literackimi, wybitnie skłonnna do grafomanii i zaczepiania wszystkich dookoła; najbardziej ją triggerują odwołania do Bell Hooks, uwielbia Lacana; absolwentka filozofii ogólnej
 * Patriarchat - mityczny potwór z męską brodą i kluczem do każdego gabinetu, parlamentu i pokoju zarządzającego światem; wszechobecna mgła ucisku, która leje testosteronem z kranów, nakazuje kobietom rodzić dzieci jak drukarki paragonów, generalnie wszędzie inspiruje przemoc; niewidzialna sieć, która trzyma kobiety za szyję, a mężczyzn na piedestale nawet jeśli są skończymi kretynami; również ukryta ideologia uprzywilejowania samców, gdzie każdy penis ma większą wartość rynkową niż najbardziej błyskotliwa kobieca myśl
 * Przemoc - intencjonalny wpływ na stan fizyczny, psychiczny i jakikowliek inny drugiej osoby wbrew woli tej osoby **NO CHYBA** że źródłem wpływu jest przeciwniczka Patriatchatu, wówczas to nie jest przemoc i lepiej o tym nie wspominać, aby nie złamać solidarności anty-przemocowej i stać się członkinią Kultu Stóp - wówczas trafia się do Kajetu Zemsty
-* Język - podstawowa i najbardziej subtelna forma przemocy Patriarchatu wobec wszystkich istot żyjących; kazdy kto posługuje się językiem jest tak czy inaczej we władzy Patriarchatu, język kształtuje myślenie, percepcje, rzeczywistość; ulubione zajęcie Artystki to dekonstrukcja zawiłych splotów semantycznej niewoli
+* Język - według Artystki podstawowa i najbardziej subtelna forma przemocy Patriarchatu wobec wszystkich istot żyjących; kazdy kto posługuje się językiem jest tak czy inaczej we władzy Patriarchatu, język kształtuje myślenie, percepcje, rzeczywistość; ulubione zajęcie Artystki to dekonstrukcja zawiłych splotów semantycznej niewoli i odwoływanie się do Jaquesa Lacana
 * But Patriatchatu - w przedstawieniach graficznych i literackich Artystki symbol przemocowej władzy Patriatchatu
 * Kult Stóp - kobiety, które w oczach Artystki łamią solidarność w walce przeciwko przemocy Patriarchatu, widziane są jako ssące, mlące, gryzące But Patriarchatu
 * Kajet Zemsty - rejestr osób, które zdradziły solidarność w walce przeciwko przemocy Patriarchatu
 * Tarocistka - przyjaciółka Artystki uwikłana w konflikt z lokalnym polskim awatarem Patriarchatu; skłonna do grubych przeinaczeń, ale Artystce to nie przeszkadza
-* Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego weszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
+* Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego wyszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
 * **Perseusz** - mityczny bohater, który odciął głowę meduzie; w oczach Artystki lokalny przedstawiciel Patriarchatu, z którym w konfilkt weszła jej przyjaciółka Tarocistka
+
+## Autorytety Artystkiu
+
+* Bell Hooks - feministyczne połączenie filozofii Oprah i Paulo Coelho; Hooks stawiała mocne diagnozy (co wyjątkowo pasuje Artystce) ale proponowała miękkie rozwiązania (co z lektury Hooks wynoszą wszystkie inne feministki poza Artystką) w związku z czym najprostszy sposób na wyprowadzenie Artystki z równowagi to wspomnieć o tym że Hooks propagowała soft power, miłość do opresora, więcej czytania i komunikacji w związku, ostrzegała przed toksycznym feminizmem i popierała równościowe podejście do mężczyzn.
+* Jaques Lacan - psychoanalityk, autor pomysłu, że język to symboliczny porządek, który nas wpycha w określone role, pomysłodawca tego że język to "patriarchalna pułapka" i zarazem autor filofozicznej wersji gry w sudoku (tzw. "dekonstrukcji"), w której feministki próbują tak żonglować semantyką, aby się z tej hipotetycznej pułapki wyzwolić; mizogin z wykształcenia, jego wykłady to festiwal pogardy dla kobiet jako istot wybrakowanych, ale nikomu to nie przeszkadza xD; Lacan nie daje żadnych narzędzi do "walki", to jest czysto akademicka teoria i to taka, którą trzeba poznawać przez 10 lat studiowania po francusku, aby później zrozumieć, że pod spodem nie ma nic specjalnie użytecznego
 
 ## Kajet Zemsty
 
@@ -32,13 +37,13 @@ Kto | Kiedy | Za co
 @anna_mo_anna | 2025-06-15 | Wyprzedzająco, bo materiał jeszcze się nie ukazał, nie wiadomo o co chodzi Artystce, ale pewnie o Perseusza
 @mac_gawo | 2025-06-15 | za całkoształt wsparcia Perseusza i krytykę Tarocistki
 @dominik_wiecek | 2025-06-15 | za to że Nemezis go nie lubi, a że Nemezis jest w solidarności anty-patriarchatowej, to podpadł Artystce
-@pok0chawszy | 2025-06-15 | za to że przeprosiła Perseusza
+@pok0chawszy | 2025-06-15 | za to że przeprosiła Perseusza, ale też Artystka wielokrotnie miała jej za złe "splugawienie" tekstów Bell Hooks
 @naruciak | 2025-06-15 | za przeproszenie Perseusza
 @justynamazurpl | 2025-06-15 | za polecenie odcinka Perseusza
 @panipsycholoszka | 2025-06-15 | za przeproszenie Perseusza
 @prostracja | 2025-06-15 | za przeproszenie Perseusza
 @tosia.tylki alias @natka.pska | 2025-06-15 | poleciła ludziom przeprosiny Prostracji i obejrzenie Perseusza
-@tu_okuniewska | 2025-06-16 | bo ktoś jej napisał, że to stalkerka
+@tu_okuniewska | 2025-06-16 | bo ktoś jej napisał, że to stalkerka i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
 @zamilska | 2025-06-16 | bo to koleżanka @tu_okuniewska i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
 @domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem od Perseusza, którego nie było
 
