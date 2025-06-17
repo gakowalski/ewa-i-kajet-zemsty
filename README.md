@@ -46,6 +46,15 @@ Kto | Kiedy | Za co
 @tu_okuniewska | 2025-06-16 | bo ktoś jej napisał, że to stalkerka i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
 @zamilska | 2025-06-16 | bo to koleżanka @tu_okuniewska i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
 @domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem od Perseusza, którego nie było
+@adrianzandberg | 2025-06-17 | za trzymanie @pok0chawszy w partii, aczkolwiek generalnie Artyska ma dla Adriana baaardzo dużo dobroci i gdyby przestał być politykiem a stał się "lustrem", to by mu wybaczyła wszystko
+
+## Kto dostaje rykosztem
+
+Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w jej rantach:
+
+* @plejadapl
+* @partiarazem
+* 
 
 ## Cytaty ze storiesów
 
