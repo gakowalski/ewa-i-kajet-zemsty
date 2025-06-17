@@ -20,7 +20,7 @@ Kajet szybko się zapełnia, Artyska podobno zbiera równolegle dowody, dokument
 * Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego wyszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
 * **Perseusz** - mityczny bohater, który odciął głowę meduzie; w oczach Artystki lokalny przedstawiciel Patriarchatu, z którym w konfilkt weszła jej przyjaciółka Tarocistka
 
-## Autorytety Artystkiu
+## Autorytety Artystki
 
 * Bell Hooks - feministyczne połączenie filozofii Oprah i Paulo Coelho; Hooks stawiała mocne diagnozy (co wyjątkowo pasuje Artystce) ale proponowała miękkie rozwiązania (co z lektury Hooks wynoszą wszystkie inne feministki poza Artystką) w związku z czym najprostszy sposób na wyprowadzenie Artystki z równowagi to wspomnieć o tym że Hooks propagowała soft power, miłość do opresora, więcej czytania i komunikacji w związku, ostrzegała przed toksycznym feminizmem i popierała równościowe podejście do mężczyzn.
 * Jaques Lacan - psychoanalityk, autor pomysłu, że język to symboliczny porządek, który nas wpycha w określone role, pomysłodawca tego że język to "patriarchalna pułapka" i zarazem autor filofozicznej wersji gry w sudoku (tzw. "dekonstrukcji"), w której feministki próbują tak żonglować semantyką, aby się z tej hipotetycznej pułapki wyzwolić; mizogin z wykształcenia, jego wykłady to festiwal pogardy dla kobiet jako istot wybrakowanych, ale nikomu to nie przeszkadza xD; Lacan nie daje żadnych narzędzi do "walki", to jest czysto akademicka teoria i to taka, którą trzeba poznawać przez 10 lat studiowania po francusku, aby później zrozumieć, że pod spodem nie ma nic specjalnie użytecznego
