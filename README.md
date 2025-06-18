@@ -47,6 +47,7 @@ Kto | Kiedy | Za co
 @zamilska | 2025-06-16 | bo to koleżanka @tu_okuniewska i "stoi po stronie przemocy" (czyt: pewnie lubi Perseusza albo coś takiego)
 @domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem od Perseusza, którego nie było
 @adrianzandberg | 2025-06-17 | za trzymanie @pok0chawszy w partii, aczkolwiek generalnie Artyska ma dla Adriana baaardzo dużo dobroci i gdyby tylko przestał być politykiem a stał się "lustrem", to by mu wybaczyła wszystko
+@majastasko | 2025-06-18 | za przyznanie Perseuszowi częściowej racji w oświadczeniu, które opublikowała 10 minut po publikacji 1,5h filmu jej poświęconej, co Artystka zinterpretowała tak, że Staśko współrpacuje z Perseuszem
 
 ## Kto dostaje rykosztem
 
