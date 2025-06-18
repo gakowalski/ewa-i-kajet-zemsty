@@ -33,8 +33,8 @@ Kto | Kiedy | Za co
 --- | --- | ---
 @kasiababiscomics | 2025-06-13 | [Za nieprzychylne Tarocistce omówienie pulikacji Perseusza](https://www.youtube.com/watch?v=p6-7Ll3fBJM)
 @boska_nioska | 2025-06-14 | Za nieprzychylne skomentowanie Tarocistki w stories na insta
-@karolinakp | 2025-06-15  | Wyprzedzająco, bo materiał jeszcze się nie ukazał, nie wiadomo o co chodzi Artystce, ale pewnie o Perseusza
-@anna_mo_anna | 2025-06-15 | Wyprzedzająco, bo materiał jeszcze się nie ukazał, nie wiadomo o co chodzi Artystce, ale pewnie o Perseusza
+@karolinakp | 2025-06-15  | Wyprzedzająco za fragment [podcastu](https://open.spotify.com/episode/7ENKpotG5LU1XaD7SF3mMG), który miał luźno nawiązywać do Perseusza, ale który się jeszcze nie ukazał w momencie wpisu do Kajetu
+@anna_mo_anna | 2025-06-15 | Wyprzedzająco za fragment [podcastu](https://open.spotify.com/episode/7ENKpotG5LU1XaD7SF3mMG), który miał luźno nawiązywać do Perseusza, ale który się jeszcze nie ukazał w momenci wpisu do Kajetu
 @mac_gawo | 2025-06-15 | za całkoształt wsparcia Perseusza i krytykę Tarocistki
 @dominik_wiecek | 2025-06-15 | za to że Nemezis go nie lubi, a że Nemezis jest w solidarności anty-patriarchatowej, to podpadł Artystce
 @pok0chawszy | 2025-06-15 | za to że przeprosiła Perseusza, ale też Artystka wielokrotnie miała jej za złe "splugawienie" tekstów Bell Hooks
