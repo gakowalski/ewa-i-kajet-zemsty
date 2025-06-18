@@ -49,13 +49,14 @@ Kto | Kiedy | Za co
 @adrianzandberg | 2025-06-17 | za trzymanie @pok0chawszy w partii, aczkolwiek generalnie Artyska ma dla Adriana baaardzo dużo dobroci i gdyby tylko przestał być politykiem a stał się "lustrem", to by mu wybaczyła wszystko
 @majastasko | 2025-06-18 | za przyznanie Perseuszowi częściowej racji w oświadczeniu, które opublikowała 10 minut po publikacji 1,5h filmu jej poświęconej, co Artystka zinterpretowała tak, że Staśko współrpacuje z Perseuszem
 
-## Kto dostaje rykosztem
+## Kto dostaje rykoszetem i/lub próby cancelu
 
 Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w jej rantach:
 
 * @plejadapl
 * @partiarazem - oznaczana w nawiązaniu do @adrianzandberg oraz @pok0chawszy
 * @newsweekpolska oraz @newsweek - oznaczane w nawiązaniu do @justynamazurpl
+* @krytykapolityczna - oznazcane w związku z @majastasko
 
 ## Cytaty ze storiesów
 
