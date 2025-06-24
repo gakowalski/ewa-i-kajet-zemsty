@@ -48,6 +48,8 @@ Kto | Kiedy | Za co
 @domibak91 | 2025-06-16 | bo napisała "XD" w wiadomości i śmiała śmieć poinformować, ze ktoś Artystkę wkręca z jakimś lajwem od Perseusza, którego nie było
 @adrianzandberg | 2025-06-17 | za trzymanie @pok0chawszy w partii, aczkolwiek generalnie Artyska ma dla Adriana baaardzo dużo dobroci i gdyby tylko przestał być politykiem a stał się "lustrem", to by mu wybaczyła wszystko
 @majastasko | 2025-06-18 | za przyznanie Perseuszowi częściowej racji w oświadczeniu, które opublikowała 10 minut po publikacji 1,5h filmu jej poświęconej, co Artystka zinterpretowała tak, że Staśko współrpacuje z Perseuszem
+@nathallae | 2025-06-23 | za wyrażenie współczucia i wsparcia Perseuszowi
+@istquiett | 2025-06-23 | pierwsza męska postać oficjalnie wpisana w oryginalny Kajet Zemsty; wpisany za podawanie faktów (Zagulska rozpowszechniała fałszywe informacje) będacych "granatem zawiniętym w bibułkę obiektywizmu".
 
 ## Kto dostaje rykoszetem i/lub próby cancelu
 
@@ -56,7 +58,8 @@ Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w 
 * @plejadapl
 * @partiarazem - oznaczana w nawiązaniu do @adrianzandberg oraz @pok0chawszy
 * @newsweekpolska oraz @newsweek - oznaczane w nawiązaniu do @justynamazurpl
-* @krytykapolityczna - oznazcane w związku z @majastasko
+* @krytykapolityczna - oznaczane w związku z @majastasko
+* @najlepszy_jas_kapela - oznacza w związku z przeprosinami @krytykapolityczna oraz @pat.wieczorkiewicz wobec Perseusza
 
 ## Cytaty ze storiesów
 
