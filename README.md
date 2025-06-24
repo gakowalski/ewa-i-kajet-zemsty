@@ -49,7 +49,7 @@ Kto | Kiedy | Za co
 @adrianzandberg | 2025-06-17 | za trzymanie @pok0chawszy w partii, aczkolwiek generalnie Artyska ma dla Adriana baaardzo dużo dobroci i gdyby tylko przestał być politykiem a stał się "lustrem", to by mu wybaczyła wszystko
 @majastasko | 2025-06-18 | za przyznanie Perseuszowi częściowej racji w oświadczeniu, które opublikowała 10 minut po publikacji 1,5h filmu jej poświęconej, co Artystka zinterpretowała tak, że Staśko współrpacuje z Perseuszem
 @nathallae | 2025-06-23 | za wyrażenie współczucia i wsparcia Perseuszowi
-@istquiett | 2025-06-23 | pierwsza męska postać oficjalnie wpisana w oryginalny Kajet Zemsty; wpisany za podawanie faktów (Zagulska rozpowszechniała fałszywe informacje) będacych "granatem zawiniętym w bibułkę obiektywizmu".
+@itsquiett | 2025-06-23 | pierwsza męska postać oficjalnie wpisana w oryginalny Kajet Zemsty; wpisany za podawanie faktów (Zagulska rozpowszechniała fałszywe informacje) będacych "granatem zawiniętym w bibułkę obiektywizmu".
 
 ## Kto dostaje rykoszetem i/lub próby cancelu
 
