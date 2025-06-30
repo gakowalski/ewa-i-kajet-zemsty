@@ -60,6 +60,7 @@ Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w 
 * @newsweekpolska oraz @newsweek - oznaczane w nawiązaniu do @justynamazurpl
 * @krytykapolityczna - oznaczane w związku z @majastasko
 * @najlepszy_jas_kapela - oznacza w związku z przeprosinami @krytykapolityczna oraz @pat.wieczorkiewicz wobec Perseusza
+* @tvn.pl  - w związku z pismem Perseusza do CEO Tvn
 
 ## Cytaty ze storiesów
 
