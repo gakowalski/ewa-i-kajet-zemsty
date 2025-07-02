@@ -14,7 +14,7 @@ Kajet szybko się zapełnia, Artyska podobno zbiera równolegle dowody, dokument
 * Przemoc - intencjonalny wpływ na stan fizyczny, psychiczny i jakikowliek inny drugiej osoby wbrew woli tej osoby **NO CHYBA** że źródłem wpływu jest przeciwniczka Patriatchatu, wówczas to nie jest przemoc i lepiej o tym nie wspominać, aby nie złamać solidarności anty-przemocowej i stać się członkinią Kultu Stóp - wówczas trafia się do Kajetu Zemsty
 * Język - według Artystki podstawowa i najbardziej subtelna forma przemocy Patriarchatu wobec wszystkich istot żyjących; kazdy kto posługuje się językiem jest tak czy inaczej we władzy Patriarchatu, język kształtuje myślenie, percepcje, rzeczywistość; ulubione zajęcie Artystki to dekonstrukcja zawiłych splotów semantycznej niewoli i odwoływanie się do Jaquesa Lacana
 * But Patriatchatu - w przedstawieniach graficznych i literackich Artystki symbol przemocowej władzy Patriatchatu
-* Kult Stóp - kobiety, które w oczach Artystki łamią solidarność w walce przeciwko przemocy Patriarchatu, widziane są jako ssące, mlące, gryzące But Patriarchatu
+* Kult Stóp - kobiety, które w oczach Artystki łamią solidarność w walce przeciwko przemocy Patriarchatu, widziane są jako ssące, mlące, gryzące But Patriarchatu; z biegiem czasu Artystka zaczęła rozszerzać kult stóp także na mężczyn, którzy wierzą Perseuszowi
 * Kajet Zemsty - rejestr osób, które zdradziły solidarność w walce przeciwko przemocy Patriarchatu
 * Tarocistka - przyjaciółka Artystki uwikłana w konflikt z lokalnym polskim awatarem Patriarchatu; skłonna do grubych przeinaczeń, ale Artystce to nie przeszkadza
 * Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego wyszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
@@ -50,6 +50,9 @@ Kto | Kiedy | Za co
 @majastasko | 2025-06-18 | za przyznanie Perseuszowi częściowej racji w oświadczeniu, które opublikowała 10 minut po publikacji 1,5h filmu jej poświęconej, co Artystka zinterpretowała tak, że Staśko współrpacuje z Perseuszem
 @nathallae | 2025-06-23 | za wyrażenie współczucia i wsparcia Perseuszowi
 @itsquiett | 2025-06-23 | pierwsza męska postać oficjalnie wpisana w oryginalny Kajet Zemsty; wpisany za podawanie faktów (Zagulska rozpowszechniała fałszywe informacje) będacych "granatem zawiniętym w bibułkę obiektywizmu".
+@najlepszy_jas_kapela | 2025-07-07 | za bycie "serdecznym koleżką" Perseusza
+@pat.wieczorkiewisz | 2025-07-07 | jakoby za reakcję "haha" na instagram story Artystki, w którym Artyska nazywa ją "medianym straszydłem"
+@segritta | 2025-07-07 | za to, że Perseusz polecił jej książkę i/lub za to że nie chciała się wypowiedzieć w kwestii Perseusza podczas Q&A u siebie na stories
 
 ## Kto dostaje rykoszetem i/lub próby cancelu
 
@@ -61,6 +64,16 @@ Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w 
 * @krytykapolityczna - oznaczane w związku z @majastasko
 * @najlepszy_jas_kapela - oznacza w związku z przeprosinami @krytykapolityczna oraz @pat.wieczorkiewicz wobec Perseusza
 * @tvn.pl  - w związku z pismem Perseusza do CEO Tvn
+* @kultura_gov_pl
+* @ms_gov_pl
+* @oficjalnezero
+* @tnv24newsroom
+* @pudelek_pl
+* @superexpress_se.pl
+* @oko.press
+* @w.polityce
+* @wirtualnemedia
+* @gazeta_wyborcza
 
 ## Cytaty ze storiesów
 
