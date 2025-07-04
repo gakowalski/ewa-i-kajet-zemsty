@@ -14,7 +14,7 @@ Kajet szybko się zapełnia, Artyska podobno zbiera równolegle dowody, dokument
 * Przemoc - intencjonalny wpływ na stan fizyczny, psychiczny i jakikowliek inny drugiej osoby wbrew woli tej osoby **NO CHYBA** że źródłem wpływu jest przeciwniczka Patriatchatu, wówczas to nie jest przemoc i lepiej o tym nie wspominać, aby nie złamać solidarności anty-przemocowej i stać się członkinią Kultu Stóp - wówczas trafia się do Kajetu Zemsty
 * Język - według Artystki podstawowa i najbardziej subtelna forma przemocy Patriarchatu wobec wszystkich istot żyjących; kazdy kto posługuje się językiem jest tak czy inaczej we władzy Patriarchatu, język kształtuje myślenie, percepcje, rzeczywistość; ulubione zajęcie Artystki to dekonstrukcja zawiłych splotów semantycznej niewoli i odwoływanie się do Jaquesa Lacana
 * But Patriatchatu - w przedstawieniach graficznych i literackich Artystki symbol przemocowej władzy Patriatchatu
-* Kult Stóp - kobiety, które w oczach Artystki łamią solidarność w walce przeciwko przemocy Patriarchatu, widziane są jako ssące, mlące, gryzące But Patriarchatu; z biegiem czasu Artystka zaczęła rozszerzać kult stóp także na mężczyn, którzy wierzą Perseuszowi
+* Kult Stóp - kobiety, które w oczach Artystki łamią solidarność w walce przeciwko przemocy Patriarchatu, widziane są jako ssące, mlące, gryzące But Patriarchatu; z biegiem czasu Artystka zaczęła rozszerzać kult stóp także na mężczyn, którzy wierzą Perseuszowi, oraz na kobiety, które followują Maję Stasko (mają "stópkę Staśko w buźce").
 * Kajet Zemsty - rejestr osób, które zdradziły solidarność w walce przeciwko przemocy Patriarchatu
 * Tarocistka - przyjaciółka Artystki uwikłana w konflikt z lokalnym polskim awatarem Patriarchatu; skłonna do grubych przeinaczeń, ale Artystce to nie przeszkadza
 * Nemezis - narcyzobójczyni; interntetowa znajoma Artystki słynąca z obsesyjnego wyszukiwania i ujawniania narcyzmu i narcyzów; m.in. dopatrzyła się potężnego narcyzmu w Perseuszu
@@ -74,6 +74,11 @@ Rozmaite podmioty i osoby oznaczane mniej lub bardziej celowo przez Artystkę w 
 * @w.polityce
 * @wirtualnemedia
 * @gazeta_wyborcza
+* @vogue.polska
+* @pisorgpl
+* @rolnikszukazonytvp
+* @krytykapolityczna_cieszyn
+* @wikipedia
 
 ## Cytaty ze storiesów
 
